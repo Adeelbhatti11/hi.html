@@ -1,2 +1,2 @@
-ok by thankyou form sir adeel haroon
+ok by thankyou form sir adeel
 gg
